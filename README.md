@@ -1,6 +1,6 @@
 ### Hi there👋 I am Satyam Suman
 
-#### Software Engineer || Enthusiastic Techie
+#### Software Engineer || Tech Enthusiast
 
 Here are some ideas to get you started:
 
